@@ -6,7 +6,7 @@
 <h6 align="center">I go by many names, but if we aren't friends just call me Afton or Mr. Afton. My other names are reserved for friends and close friends.
 <h6 align="center">═══════
 <h6 align="center">ꨄ
-<h6 align="center">You may find me sitting quietly, if I am not responding I am probably offtab or Afk. I try to remember to put Afk in my name.
+<h6 align="center">You may find me sitting quietly, if I am not responding I am probably offtab or Afk. I try to remember to put Afk in my name. But shoot me a whisper if you need anything.
 <h6 align="center">You are free to come sit with me, just don't cover me. I do like to see myself. Friends can do whatever.
 <h5 align="center">Don't copy mine or our ponies, since we worked hard on making them..
 <h6 align="center">Be mindful I can get agitated at times, so if I have iwc/iwec interact with care please.
