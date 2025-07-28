@@ -16,7 +16,7 @@
 <h6 align="center">♱
 <h6 align="center">═══════
 <p align="center">
-  <img src="https://64.media.tumblr.com/470b351f64f35b2924844420bb0f8fe8/6210eecf512d2aaa-d7/s540x810/738a7c982e699a7ced1d05ebf3ccfbfe32fcc3a2.gifv" />
+  <img src="https://64.media.tumblr.com/fdfcbc3dd27f6a354f4e7acb531411f0/a17291b50e366bc1-df/s500x750/90ee69a6ce908ca4308c4865b39dc892a444ecb2.gif" />
 </p>
 <h6 align="center">✦•················•✦•··················•✦
 
