@@ -11,6 +11,7 @@
 <h5 align="center">Don't copy mine or our ponies, since we worked hard on making them..
 <h6 align="center">Be mindful I can get agitated at times, so if I have iwc/iwec interact with care please.
 <h6 align="center">Basic Dni critera plus most of the fnaf fandom itself. I don't like being shipped with my son... seriously why...
+<h6 align="center">Also don't ask for help with building limit just because I'm a suporter.
 
 [ᴍʏ ɪɴꜰᴏ](https://pluralkit.xyz/m/egwenu) || [ᴘᴀʀᴀɴᴏʀᴍᴀʟ ꜱʏꜱᴛᴇᴍ](https://pluralkit.xyz/s/azvjwp) || [ʜᴏꜱᴛ'ꜱ ᴘᴀᴛʀᴇᴏɴ](https://patreon.com/TarnishMarz)
 <h6 align="center">♱
