@@ -9,7 +9,7 @@
 <h6 align="center">You may find me sitting quietly, if I am not responding I am probably offtab or Afk. I try to remember to put Afk in my name. But shoot me a whisper if you need anything.
 <h6 align="center">You are free to come sit with me, just don't cover me. I do like to see myself. Friends can do whatever.
 <h5 align="center">Don't copy mine or our ponies, since we worked hard on making them..
-<h6 align="center">Be mindful I can get agitated at times, so if I have iwc/iwec interact with care please.
+<h6 align="center">Be mindful I can get agitated at times, so if I have iwc/iwec interact with caution please, I'm probably cranky.
 <h6 align="center">Basic Dni critera plus most of the fnaf fandom itself. I don't like being shipped with my son... seriously why...
 <h6 align="center">Also don't ask for help with building limit just because I'm a suporter.
 
