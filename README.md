@@ -13,7 +13,7 @@
 <h6 align="center">Basic Dni critera plus most of the fnaf fandom itself. I don't like being shipped with my son... seriously why...
 <h6 align="center">Also don't ask for help with building limit just because I'm a suporter.
 
-[ᴍʏ ɪɴꜰᴏ](https://pluralkit.xyz/m/egwenu) || [ᴘᴀʀᴀɴᴏʀᴍᴀʟ ꜱʏꜱᴛᴇᴍ](https://pluralkit.xyz/s/azvjwp) || [ʜᴏꜱᴛ'ꜱ ᴘᴀᴛʀᴇᴏɴ](https://patreon.com/TarnishMarz)
+[ᴍʏ ɪɴꜰᴏ](https://pluralkit.xyz/m/egwenu) || [ᴘᴀʀᴀɴᴏʀᴍᴀʟ ꜱʏꜱᴛᴇᴍ](https://pluralkit.xyz/s/azvjwp) || [ʜᴏꜱᴛ'ꜱ ɪɴꜰᴏ](https://github.com/TarnishMarz)
 <h6 align="center">♱
 <h6 align="center">═══════
 <p align="center">
